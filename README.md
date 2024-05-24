@@ -1,4 +1,4 @@
-## boas vindas ao meu perfil ⭐
+## s vindas ao meu perfil ⭐
 
 Meu nome é Maria Eduarda
 
